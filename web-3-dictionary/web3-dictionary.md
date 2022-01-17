@@ -1,4 +1,4 @@
-# Terms and Definations 📚
+# Terms and Definitions 📚
 
 It is important that we understand the basic terminology from the world of crypto. So here are some terms to know:  
 
